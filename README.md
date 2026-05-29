@@ -7,3 +7,5 @@
 
 
 ![DEUS É UMA NOTA DE 100](https://media1.tenor.com/m/8S5jwejjsUYAAAAC/mano-brown-racionais-mcs.gif)
+**¹⁵ Eis que seguramente poderão vir a juntar-se contra ti, mas não será por mim; quem se ajuntar contra ti cairá por causa de ti.
+Isaías 54:15
